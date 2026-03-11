@@ -14,3 +14,14 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+**Front-End Developer | Creative | Project Manager | Social Media Manager**
+
+I enjoy learning how software, data, and online communication can work together to create impactful digital experiences.
+
+---
+
+## 🤔 What I Do
+
+work in progress...
+
